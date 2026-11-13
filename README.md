@@ -1,4 +1,4 @@
-# Hi, I'm Ady 👋
+# Hi, I'm Ady Hafetz 👋
 
 > Driven by curiosity, guided by purpose.
 
